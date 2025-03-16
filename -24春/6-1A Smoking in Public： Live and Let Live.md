@@ -1,4 +1,4 @@
-**Smoking in Public: Live and Let Live**
+# **Smoking in Public: Live and Let Live**
 
 Ours is a big world, complex and full of many diverse people. People with many varying points of view are constantly running up against others who have differing opinions. Those of us who smoke are just one group of many. Recently, the activism of nonsmokers has reminded us of the need to be considerate of others when we smoke in public.
 

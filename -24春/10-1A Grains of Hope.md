@@ -1,5 +1,9 @@
+# **Grains of Hope**
+
 **Genetically engineered crops could revolutionize farming. Protesters fear they could also destroy the ecosystem. You decide.**
+
 **By J. Madeleine Nash**
+
  1      At first, the grains of rice that Ingo Potrykus held in his fingers did not seem at all special, but inside, these grains were not white, as ordinary rice is, but a very pale yellow—thanks to beta-carotene, a building block for vitamin A.
 
  2      Potrykus was elated. For more than a decade he had dreamed of creating a golden rice that could improve the lives of millions of the poorest people in the world, strengthening their eyesight and their resistance to disease.

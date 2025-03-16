@@ -1,4 +1,4 @@
-**AMERICA'S NEW MERCHANTS OF DEATH**
+# **AMERICA'S NEW MERCHANTS OF DEATH**
 
 1.       IN GERMANY, three women in black miniskirts set up a table beside a Cadillac in the center of Dresden. In exchange for an empty pack of local cigarettes, they offer passersby a pack of Lucky Strikes and a leaflet that reads: "You just got hold of a nice piece of America. Lucky Strike is the original... a real classic." Says German physician Bernhard Humburger, who studies youth smoking, "Adolescents time and again receive cigarettes at such promotions."
 

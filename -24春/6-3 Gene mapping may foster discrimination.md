@@ -1,4 +1,7 @@
+# **Gene mapping may foster discrimination** 
+
 - **Employers could reject new hires predisposed to disease.**
+
 by PAUL RECER
 
 WASHINGTON—Mapping the human genome opens a new era for medical science — and a new frontier for potential discrimination.

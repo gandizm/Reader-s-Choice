@@ -1,3 +1,5 @@
+# **The Human Genome**
+
 The human genome is the genetic code contained in the tightly coiled strands of 23 pairs of chromosomes in each cell's nucleus.
 
 The Human Genome Project and Celera Genomics have been racing to be the first to decode the three billion base pairs that make up the human genome and to identify genes revealed in the process.
